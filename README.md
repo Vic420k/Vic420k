@@ -1,1 +1,1 @@
-you are nigga xd
+HELL HAH SMH UGLY ASS NIGGA OMGFGG
